@@ -1,4 +1,4 @@
-## Welcome to Tim Ake's Page
+## Tim Ake
 
 This is where all of Tim's great content will eventually appear. 
 
